@@ -1,2 +1,2 @@
 # text
-[ CLICK HERE ](https://00utio0k.weebly.com/)
+[ CLICK HERE ](file:///C:/Users/HP/Downloads/Remittance_231222%201005l(2).htm)
